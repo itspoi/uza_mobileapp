@@ -1,5 +1,3 @@
 # uza
 
-#�S�e�l�l� �S�e�l�l� �S�e�l�l�
-�
-�
+Sell what you're tired of wearing.
